@@ -1,1 +1,3 @@
 # ventureup-training
+
+rvtntgvrjojjoi oh 
